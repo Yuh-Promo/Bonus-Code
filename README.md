@@ -14,3 +14,5 @@ Bei Yuh fallen keine Kontoführungs- oder Depotgebühren an. Du zahlst lediglich
 Das moderne Design der Yuh-App wird dich begeistern. Die übersichtliche Darstellung erleichtert die Suche nach Aktien, und die Logos der Unternehmen als Icons geben dir einen visuellen Überblick. Insbesondere für Anfänger ist die Unterteilung in Sektoren, Märkte und Anlagetypen eine hilfreiche Funktion. Es wäre großartig, wenn die Swissquote App das beeindruckende Look & Feel von Yuh übernehmen würde.
 Worauf wartest du noch? Werde Teil der Yuh-Community und nutze unseren exklusiven Promo-Code nur für Schweizer Einwohner! Registriere dich jetzt, zahle CHF 500 ein und erhalte attraktive Trading-Credits. Beachte bitte, dass diese Trading-Credits 3 Monate lang gültig sind.
 Erlebe die vielfältigen Funktionen von Yuh und optimiere deine finanzielle Zukunft!
+<br>
+<img src="https://i.imgur.com/2uLgQDG.png" alt="Yuh Promo Code">
