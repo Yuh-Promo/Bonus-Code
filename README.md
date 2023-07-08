@@ -1,9 +1,9 @@
 # Yuh Bonus-Code
-PROMO CODE - EMPFEHLUNGSCODE: tsdxy3
-5000 Swissqoin's (CHF 70) & CHF 10 Trading Credit
-* Nach der Verifizierung muss mindestens 500 CHF auf einmal einbezahlt werden!
+PROMO CODE - EMPFEHLUNGSCODE: <b>tsdxy3</b><br>
+5000 Swissqoin's (CHF 70) & CHF 10 Trading Credit<br>
+* Nach der Verifizierung muss mindestens 500 CHF auf einmal einbezahlt werden!<br><br>
 
-Yuh Promo Code: Exklusiv für Schweizer Einwohner – CHF 500 Einzahlung erforderlich!
+Yuh Promo Code: Exklusiv für Schweizer Einwohner – CHF 500 Einzahlung erforderlich!<br><br>
 
 Möchtest du deine Finanzen optimal verwalten und dabei von attraktiven Angeboten profitieren? Dann ist Yuh die perfekte Finanzapp für dich! Mit Yuh vereinst du E-Banking, Sparen und Investieren in einer einzigen Anwendung.
 Mit Yuh kannst du dein Vermögen effizient verwalten und gleichzeitig von zahlreichen Funktionen profitieren. Nutze die gratis Debit-Mastercard, um Geld abzuheben oder in Geschäften und online zu bezahlen. Führe bequem E-Banking-Zahlungen durch, indem du QR-Codes und ESR scannst. Erstelle Sparprojekte, wechsle Währungen und investiere in Aktien, ETFs und sogar Kryptowährungen.
